@@ -1,0 +1,2 @@
+# latihan
+dibuat untuk tugas
